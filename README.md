@@ -5,4 +5,3 @@
 - 📫 How to reach me: 
 -  Mail: timo.ens@gmail.com
 -  Discord: Timo#4152
-- ⚡ Fun fact: i don't drink coffee
